@@ -1,1 +1,1 @@
-# Толипов Севдар
+# Tolipov Sevdar
